@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-software engineer 
+student 
